@@ -1,2 +1,2 @@
 # Deziah-ed-Roots-Logo
-Hair product labels
+Designed Hair product labels
